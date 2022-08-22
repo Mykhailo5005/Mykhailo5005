@@ -6,4 +6,4 @@ Hey, I am Mykhailo
 
 **Medium** - https://medium.com/@Mykhailo5005
 
-**Twitter** - https://twitter.com/DaniilLobanov13
+**Twitter** - https://twitter.com/MykhailoIN13
